@@ -8,4 +8,4 @@ https://user-images.githubusercontent.com/85345603/168543733-1acacd27-47cc-4277-
 
 **2.Zone setup
 
-![Imgur Image](https://imgur.com/knkaHPk)
+https://user-images.githubusercontent.com/85345603/168545710-45b22ea6-ff7d-49c4-a92c-057612d53370.mp4
