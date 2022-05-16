@@ -1,4 +1,4 @@
 # This system was created for one server. 
 
 System showcase:
-https://images-ext-1.discordapp.net/external/E56-OTy-DsnFfmVMjPxS2GxfgdLyAkcaKHc1eK7UyJc/https/i.imgur.com/woK4kEt.mp4
+https://user-images.githubusercontent.com/85345603/168543733-1acacd27-47cc-4277-9557-ca6382d44f79.mp4
