@@ -8,4 +8,4 @@ https://user-images.githubusercontent.com/85345603/168543733-1acacd27-47cc-4277-
 
 **2.Zone setup
 
-https://imgur.com/a/wTroOF2
+<img src="https://imgur.com/a/wTroOF2"/>
