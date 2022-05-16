@@ -8,4 +8,4 @@ https://user-images.githubusercontent.com/85345603/168543733-1acacd27-47cc-4277-
 
 **2.Zone setup
 
-<blockquote class="imgur-embed-pub" lang="en" data-id="a/wTroOF2" data-context="false" ><a href="//imgur.com/a/wTroOF2"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
+![Imgur Image](https://imgur.com/knkaHPk)
